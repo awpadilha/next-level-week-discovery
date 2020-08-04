@@ -1,4 +1,4 @@
-### NEXT LEVEL WEEK
+### NEXT LEVEL WEEK 
 
 Discovery - Conhecimentos básicos
 Instrutor - Mayk Brito
