@@ -1,6 +1,6 @@
 ### NEXT LEVEL WEEK
 
-Discovery - Conhecimentos básicos
+Discovery - Conhecimentos Iniciais
 
 Instrutor - Mayk Brito
 
